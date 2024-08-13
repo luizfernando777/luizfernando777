@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Luiz Fernando 
 - 👀 I’m interested in ...  sou estudante do 1ºB, da escola P.E.I leonardo vilas boas.
 - 🌱 I’m currently learning ... Estou aprendendo a usar o alura e outras plataformas.
-- 💞️ I’m looking to collaborate on ... Nas minhas horas vagas gosto de dormir ou escutar musica.
+- 💞️ I’m looking to collaborate on ... Nas minhas horas vagas gosto de dormir e ver skills do neymar.
 - 📫 How to reach me ... Ser ganhador da mega sena.
 - 😄 Pronouns: ... ney/mar
 - ⚡ Fun fact: ...
